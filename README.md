@@ -31,7 +31,7 @@ Estoy familiarizado con estas herramientas para desarrollar aplicaciones robusta
 ¡Explora mis repositorios y únete a mí en este viaje de creación y aprendizaje!  🚀
 
 ## Contacto
-- **Correo Electrónico:** [samuel986@gmail.com](mailto:samuelmateo986@gmail.com)
+- **Correo Electrónico:** [samuelmateo986@gmail.com](mailto:samuelmateo986@gmail.com)
 - **Celular:** [+57 3197059881](tel:+573197059881)
 - **LinkedIn:** [linkedin.com/in/samuel-mateo-rodríguez-yopasa](https://www.linkedin.com/in/samuel-mateo-rodr%C3%ADguez-yopasa)
   
